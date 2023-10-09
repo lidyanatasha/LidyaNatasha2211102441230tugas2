@@ -1,0 +1,1 @@
+# LidyaNatasha2211102441230tugas2
